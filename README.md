@@ -1,1 +1,1 @@
-# Processo-Seletivo-Mobix---Desafio-de-L-gica---Jose-Alexandre-da-Cruz-Filho
+# Processo-Seletivo-Mobix---Desafio-de-Logica-Jose-Alexandre-da-Cruz-Filho
